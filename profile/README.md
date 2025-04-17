@@ -1,5 +1,13 @@
 [ＤＩＲＥＣＴ@]Le Printemps de Bourges 2025 en direct ｓｔｒｅａｍｉｎｇ
 
+
+[🌐 en direct 🟢==►► Le Printemps de Bourges 2025 en direct](https://itbdts.blogspot.com/2025/04/en-direct-le-printemps-de-bourges-2025.html)
+
+[🌐 en direct 🟢==►► Le Printemps de Bourges 2025 en direct](https://itbdts.blogspot.com/2025/04/en-direct-le-printemps-de-bourges-2025.html)
+
+
+
+
 Printemps de Bourges 2025 : un syndicat de producteurs présente un projet visant à réfléchir à l'avenir des tournées XXL, ciblées pour leur impact environnemental
 Le projet s'appuie sur une enveloppe jusqu'à 1,15 million d'euros (État et Centre national de la musique), complétée par de l'autofinancement.Les grandes tournées musicales, séduisantes par leur démesure, mais polluantes pour les mêmes raisons, doivent revoir leur copie pour "choisir plutôt que subir" l'avenir, assure un syndicat des entrepreneurs du spectacle vivant privé, qui pilote un projet d'expérimentation. Entre le transport du matériel et des équipes, l'hébergement ou encore la restauration, les tournées géantes, aux scénographies spectaculaires, riment avec lourd bilan carbone, auquel s'ajoute celui du déplacement massif des spectateurs.
 
